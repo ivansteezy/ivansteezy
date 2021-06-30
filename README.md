@@ -8,7 +8,7 @@ You can send me an [email](mailto:network.9961@gmail.com), if you like to talk /
 ## Social media 📡
 In case you want to see a little of what I put on the internet, you can find it here:
 - ※ 🐤[Twitter](https://twitter.com/robot_earss):
-- ※ 🎮[Twitch](https://www.twitch.tv/):
+- ※ 🎮[Twitch](https://www.twitch.tv/ivansteezy):
 - ※ 📺[Youtube](https://www.youtube.com/channel/UCSMQuAycgl_GFIU2fDMHNSw):
 - ※ 🎵[Last.fm](https://www.last.fm/user/IvanSt33zy)
 - ※ 📸[Tumblr](https://ivanayalastd.tumblr.com/)
