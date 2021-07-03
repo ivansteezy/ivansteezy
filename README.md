@@ -47,7 +47,7 @@ Sme of the languages I have used (I particularly enjoy C++ 💜)
         </tr>
         <tr>
             <td align="left">Familiar</td>
-            <td align="center">Rust, PHP, Python</td>
+            <td align="center">Rust, Java, Python</td>
         </tr>
     </tbody>
 </table>
